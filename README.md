@@ -9,7 +9,9 @@
 这方面一直是我多年追求和长期实践的，在这里跟大家分享和探讨一些粗浅的见解。
 
 ## 下载
-[视频版本](https://pan.baidu.com/s/1FHCaYaVULWSj7dNqC14s1A) 可用该连接下载，密码是 ***7yvn***.
+[视频版本](https://pan.baidu.com/s/1wfJm7p_LIMDvWkRbzfh4kw) 可用该连接下载，密码是 ***IIE1***.
 
 ## 联系人：
 有问题可以联系:zhangchuang@iie.ac.cn
+
+
