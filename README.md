@@ -17,6 +17,9 @@
 ## 下载
 [视频版本](https://pan.baidu.com/s/1wfJm7p_LIMDvWkRbzfh4kw) 可用该连接下载，密码是 ***IIE1***.
 
+## 视频
+[B站版本](https://www.bilibili.com/video/BV1QP411d7oz/).
+
 ## 联系人：
 有问题可以联系:zhangchuang@iie.ac.cn
 
